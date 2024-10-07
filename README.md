@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me : not yet 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: i dont have one . lmao
 
 <!---
 NQ-Huy-1150/NQ-Huy-1150 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
